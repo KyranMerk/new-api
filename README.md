@@ -1,1 +1,3 @@
-My name is Kyran and im excited to start this.
+My name is Kyran Merkley. 
+I love to fish, hike and go camping.
+
